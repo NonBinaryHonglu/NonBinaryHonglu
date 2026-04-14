@@ -15,7 +15,5 @@
       TAKEN. Do not flirt even jokingly.
     <p align="center">
     ────୨ৎ────
-     <p align="center">
-     Heathlu / Greglu / Meurrodya (All of them self inserted.) shipper. Hong lu is so me okay bye :D
-   </p align="center">
+     <p align="center">   </p align="center">
  <img src="https://files.catbox.moe/04lh41.png" width="5000" height="100" border="10"/>
