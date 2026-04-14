@@ -12,7 +12,7 @@
   ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
   ℌ𝔬𝔫𝔤 𝔩𝔲 ˗ˏˋ ★ ˎˊ˗ MDNI. ˗ˏˋ ★ ˎˊ˗  They/them!
        <p align="center">
-      TAKEN. Do not flirt even jokingly.
+      hong lu might be me man!
     <p align="center">
     ────୨ৎ────
      <p align="center">   </p align="center">
